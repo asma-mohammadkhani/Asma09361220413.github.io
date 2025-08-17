@@ -1,0 +1,1 @@
+Add your profile photo here as 'avatar.jpg' (800x800 recommended).
